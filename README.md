@@ -1,1 +1,1 @@
-# slozhno-sosredotochitsya-ad
+https://github.com/Amaliya-gnomik/slozhno-sosredotochitsya-ad
